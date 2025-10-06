@@ -2,7 +2,7 @@
 
 ⠀⠀⠀⠀⠀⠀⠀♯┆ᴀᴋɪᴏ , ᴋɪᴏ , ᴀᴋɪ , ꜰᴀɪʟʟɪʀ , ꜰᴀɪ  .ᐟ
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀╱ read rentry for important information 
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀╱ read rentry for important information 
 
 
 <!--
