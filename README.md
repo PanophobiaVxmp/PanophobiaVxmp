@@ -1,4 +1,8 @@
-## Hi there 👋
+<img width="1651" height="1651" alt="1000044729" src="https://github.com/user-attachments/assets/1b412a24-3aea-4ddb-aa4c-3930c94e1f8c" />
+
+⠀⠀⠀⠀⠀⠀⠀♯┆ᴀᴋɪᴏ , ᴋɪᴏ , ᴀᴋɪ , ꜰᴀɪʟʟɪʀ , ꜰᴀɪ  .ᐟ
+⠀⠀⠀⠀⠀╱ read rentry for important information 
+
 
 <!--
 **PanophobiaVxmp/PanophobiaVxmp** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
